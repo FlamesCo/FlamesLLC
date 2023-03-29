@@ -12,4 +12,4 @@ At Blaze Systems, we are dedicated to transcending the limits of AI-driven softw
 
 Eager to know more? Visit our website at https://github.com/FlamesLLC @FlamesLLC and uncover how we can elevate your gaming and software experiences.
 
-Thank you for choosing Blaze Systems as your trusted provider of AI-generated software!
+Thank you for choosing Flames Co.  Systems as your trusted provider of AI-generated software!
