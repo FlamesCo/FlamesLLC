@@ -1,8 +1,8 @@
-Flames Co. LLC: Igniting the Future of AI-Powered Gaming
+Hypno Co. LLC: Igniting the Future of AI-Powered Gaming
 
-Keywords: AI-powered gaming, software solutions, innovative applications, immersive experience, revolutionize user experience, game development platform, artificial intelligence, custom game creation, Luigi AI, AI Chess, Galaxy Defenders, Stealth Gear X1, Flames Co. Systems, next generation software, FlamesEMU
+Keywords: AI-powered gaming, software solutions, innovative applications, immersive experience, revolutionize user experience, game development platform, artificial intelligence, custom game creation, Luigi AI, AI Chess, Galaxy Defenders, Stealth Gear X1, Hypno Co. Systems, next generation software, FlamesEMU
 
-Discover a future ignited by innovation with Flames Co. LLC, your leading partner in AI-powered gaming and software solutions. Our mission, fueled by our passion for revolutionizing the user experience, is to deliver immersive, engaging, and purposeful applications, enhancing the gaming industry's landscape.
+Discover a future ignited by innovation with Hypno Co. LLC, your leading partner in AI-powered gaming and software solutions. Our mission, fueled by our passion for revolutionizing the user experience, is to deliver immersive, engaging, and purposeful applications, enhancing the gaming industry's landscape.
 
 WebAI: Your Gateway to Custom Game Creation
 
